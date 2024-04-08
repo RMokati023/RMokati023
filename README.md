@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @RMokati023
-- 👀 I’m interested in coding and yooutube
+- 👀 I’m interested in coding and youtube
 - 🌱 I’m currently learning software developer at wethinkcode_
 - 💞️ I’m looking to collaborate on create any kind of projects
 - 📫 How to reach me just inbox me here
